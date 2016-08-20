@@ -41,7 +41,7 @@ In 55% of patients, LCH disease is limited to only one organ. In the other 45%, 
 
 The most common symptoms in adults are
 - **Skin rash**: Most commonly brown/purple spots all over the body.
-- Shortness of breah
+- Shortness of breath
 - **Excess thirst and urination**: Caused by a hormonal condition called diabetes insipidus, which causes the body to have difficulty regulating water levels.
 - **Bone pain**: LCH can cause breakdown of specific parts of bone.
 - Swelling of lymph nodes
