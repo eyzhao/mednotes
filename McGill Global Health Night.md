@@ -61,3 +61,20 @@
           practical impact.
     - We need a better trigger for action - not just when the issue comes and knocks on your door.
         - I.e. migrant crisis. Ebola.
+    - Medical care must remain at the heart of what we do. Not just **security at all costs**.
+        - We should not do "a la carte" humanitarian aid. National imperative is important but
+          cannot be the driver of response. The driver for action cannot only be fear.
+          The driver of action can only be life. Fight for life.
+
+### Panel Discussion
+
+- Dr. Mario Raviglione: 
+    - WHO constitution was a visionary statement. Especially the statement that health is
+      a state of wellbeing, not simply the absence of disease.
+        - "Health is a state of complete physical, mental and social well-being and
+          not merely the absence of disease or infirmity"
+- Dr. Keith Martin (Consortium of Universities for Global Health)
+    - Spoke about lending power, voice, and agency to those who are voiceless and powerless
+      to control their fate.
+- Dr. Patricia Cavazzoni, Senior VP, Development Operations, Pfizer
+- Mr. Paul Frazer, Former Canadian Ambassador
