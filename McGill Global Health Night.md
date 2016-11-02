@@ -65,6 +65,9 @@
         - We should not do "a la carte" humanitarian aid. National imperative is important but
           cannot be the driver of response. The driver for action cannot only be fear.
           The driver of action can only be life. Fight for life.
+    - Humility is critical.
+        - No matter how many "letters behind your name", when you are working in the community,
+          you must be humble.
 
 ### Panel Discussion
 
